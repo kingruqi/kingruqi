@@ -8,4 +8,4 @@
 
 📫 郵箱：kingrq932@gmail.com, 
 
-📫 Whatzapp : +886 987 489 940
+📫 Whatzapp : +886 987 489 940  (Telegram)
